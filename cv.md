@@ -4,7 +4,7 @@
 
 You can contact me via 📧 mukhamejanovainur9@gmail.com
 
-My Discord nickname is noora99
+My Discord nickname is noora99 https://github.com/noora-999
 
 Here's my [<img src="https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white"/>](https://www.linkedin.com/in/ainur-mukhamejanova-88272b244)
 
